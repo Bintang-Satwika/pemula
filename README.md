@@ -1,0 +1,2 @@
+# pemula
+untuk pemula
